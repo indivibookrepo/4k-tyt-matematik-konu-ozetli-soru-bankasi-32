@@ -1,0 +1,1 @@
+# 4k-tyt-matematik-konu-ozetli-soru-bankasi-32
